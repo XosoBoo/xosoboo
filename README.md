@@ -8,6 +8,17 @@ Email: admin@xoso.boo
 88 Nguyễn Thông,phường 9, Quận 3, Thành phố Hồ Chí Minh, Việt Nam
 #xoso # kqxs #xs #xsmn #xsmb #xsmt #ketquaxs #xskt
 
+https://twitter.com/xosobooo
+https://www.linkedin.com/in/xosoboo/
+
+https://www.pinterest.com/xosoboo/
+https://www.tumblr.com/xosoboo
+https://www.flickr.com/people/xosoboo/
+https://dribbble.com/XosoBoo
+
+
+https://www.deviantart.com/xosoboo
+
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
