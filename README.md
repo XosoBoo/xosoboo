@@ -2,6 +2,12 @@
 
 <!--
 **XosoBoo/xosoboo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+[Xoso](https://xoso.boo) boo - Trực tiếp kết quả xổ số Miền Bắc, Miền Nam, Miền Trung, XS điện toán Vietlott. Thống kê, soi cầu miễn phí. Kqxs; xo so kien thiet - XSKT, so xo; xoso.
+Website: https://xoso.boo
+Phone: 0988879452
+Email: admin@xoso.boo
+88 Nguyễn Thông,phường 9, Quận 3, Thành phố Hồ Chí Minh, Việt Nam
+#xoso # kqxs #xs #xsmn #xsmb #xsmt #ketquaxs #xskt
 
 Here are some ideas to get you started:
 
